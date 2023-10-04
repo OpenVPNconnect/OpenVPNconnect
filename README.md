@@ -12,8 +12,10 @@ Whatsapp Group: https://chat.whatsapp.com/CTSxCOX7TWf8lykOSHKkTD
 Whatsapp Call: https://call.whatsapp.com/voice/mCMQdsLU4ztkmWMS5mstJ7
 
 Telegram Channel: @openvpninc
+https://t.me/openvpninc
 
 Telegram Support: @openvpn14
+https://t.me/openvpn14
 
 Phone Number: +17373439110
 
